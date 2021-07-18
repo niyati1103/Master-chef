@@ -1,0 +1,1 @@
+Mix ingredients and beat for 2 minutes with an electric beater or 300 quick beats by hand. Put ingredients in a well-greased and floured tubular cake pan, 10x4 inches. Bake 45 to 50 minutes in 350 degree oven. Remove from oven and let stand for 10 minutes. While still warm, make holes with ice pick or knitting needle on top and glaze.
